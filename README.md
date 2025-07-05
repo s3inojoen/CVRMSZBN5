@@ -1,7 +1,7 @@
 <h1 style="font-size: 30px; color: #e74c3c; text-align: center; font-weight: bold;">
   Bahis Siteleri – Paran Cebinde, Şansın Elinde!
 
-[![23746324 799999997_denme](https://github.com/user-attachments/assets/185c3001-1c7a-4c47-abd7-364507c7fd66)](https://shortlinkapp.com/NtFmz)
+[![23746324 799999997_denme](https://github.com/user-attachments/assets/185c3001-1c7a-4c47-abd7-364507c7fd66)](--)
 
 
 
@@ -24,4 +24,4 @@
   *Bonus miktarları ve kampanya şartları zamanla değişebilir. Güncel bilgilere ulaşmak için bağlantıyı sık sık kontrol et.
 </p>
 
-<meta name="description" content="Yatırımsız güncel bahis siteleri. Ücretsiz oyna, risk almadan kazanmaya başla. 2025 bahis siteleri listesi seni bekliyor!">
+<meta name="description" content="Çevrimsiz bonus veren güncel bahis siteleri burada! Ücretsiz dene, yatırım yapmadan kazanmaya başla. 2025’in en yeni ve risksiz bahis platformları seni bekliyor!">
